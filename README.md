@@ -28,7 +28,8 @@ Coal mine workers often work in dark and low-light conditions where visibility i
 
 ![](IMG-20260921-WA0005(1).jpg)
 
-![][image2]![][image3]
+![](IMG-20260921-WA0004(1).jpg)
+![][image3]
 
 ### **Notes**
 
